@@ -1,0 +1,1 @@
+This all filed questions are asked during Company technical round ,Some of them are answered instantly🚀 some later😒
